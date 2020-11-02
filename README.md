@@ -7,6 +7,8 @@ Peço desculpas primeiramente, pelo fato de nunca ter utilizado a ferramente Cyp
 
 Gostaria de estar deixando o meu agradecimento, por ter tido a oportunidade de participar do processo seletivo, onde eu havia citado minha dificuldade de conseguir ingressar nessa área não tendo experiência.
 
+Espero ter uma chance de poder ingressar no time e mostrar a minha determinação de querer aprender e me aperfeiçoar cada dia mais.
+
 Para mais informações deixo meus contatos abaixo.
 
 (15)98127-5158
